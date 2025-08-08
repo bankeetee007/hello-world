@@ -12,3 +12,5 @@ but thank God i have someone who is not giving up on me
 i will keep learning everyday
 little drop makes a mighty ocean
 thank you for all you do
+i was able to push my text from vs code to github website and i think that has been a step ahead for me
+let me also try and push this write up as well 
