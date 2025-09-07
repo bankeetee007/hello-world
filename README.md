@@ -14,3 +14,6 @@ little drop makes a mighty ocean
 thank you for all you do
 i was able to push my text from vs code to github website and i think that has been a step ahead for me
 let me also try and push this write up as well 
+God has been faithful 
+i have been understanding each bit i learn everyday
+and i can boldly tell you this work really is sweet
